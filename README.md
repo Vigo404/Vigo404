@@ -22,7 +22,6 @@ Todo pasa nun sitio, sen ruído:
 💬 **[Telegram](https://t.me/vigo404)**
 
 Sen spam, sen carreiras de "quen sabe máis". Só a comunidade.
-
 ---
 
 *Feito en Vigo, Galiza.*
